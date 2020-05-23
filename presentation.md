@@ -1,3 +1,4 @@
+RSSchool frisko-sposad presentation - Agile and Scrum
 
 Видео: https://youtu.be/wI9TV2VUZOU
 
